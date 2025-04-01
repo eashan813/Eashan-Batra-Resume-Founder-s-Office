@@ -1,2 +1,2 @@
-# Eashan-Batra-Resume-Founder-s-Office
+# Eashan-Batra
 Resume For the Founder's Office Role
